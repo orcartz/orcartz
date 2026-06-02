@@ -9,7 +9,7 @@ minor · intp 5w4 · <span style="color:#c45b2e">**he/they**</span>
 
 please <span style="color:#c45b2e">**check status**</span> before interacting!
 
-im very much offtab, if you'd like to talk to me __please__ talk to me through whispers! please do note i'm very bad at conversation starters (/ _ \)
+im very much offtab, if you'd like to talk to me __please__ talk to me through whispers! please do note i'm very bad at conversation starters `(/ _ \)`
 
 <span style="color:#c45b2e">**no dni**</span> just dont be weird
 
