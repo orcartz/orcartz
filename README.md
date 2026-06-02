@@ -13,6 +13,10 @@ im very much offtab, if you'd like to talk to me __please__ talk to me through w
 
 <span style="color:#c45b2e">**no dni**</span> just dont be weird
 
+c+h always & w2i when during "away" status
+
+@orcartz on everything
+
 [ata](https://orcartz.atabook.org)
 
 
