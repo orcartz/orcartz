@@ -17,7 +17,7 @@ c+h always & w2i when during "away" status
 
 @orcartz on everything
 
-I REALLY LIKE JIA QIU/LEI HENG TALK TO ME ABOUT 🧣🐯
+I REALLY LIKE 丘横 TALK TO ME ABOUT 🧣🐯
 
 
 [ata](https://orcartz.atabook.org)
